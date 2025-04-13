@@ -6,7 +6,7 @@ sonnige Terrasse, Gartenplatz - entspannte Zeit
 
 4 Meter hohes Wohnzimmer
 
-Familie Musik Office ◊ ohne Strasse ohne Lärm
+Familie Musik Office --- ohne Strasse ohne Lärm
 
 174m2 4.5 Zimmer zwei Geschosse Minergie
 
@@ -16,4 +16,4 @@ Familie Musik Office ◊ ohne Strasse ohne Lärm
 
 ## [**walkthrough**](https://my.matterport.com/show/?m=CShoARNzPcW)
 
-## Netto 3820.00 -- NK 130.00 -- PP 140.00
+## Netto 3820.00 - NK 130.00 - PP 140.00
