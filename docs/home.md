@@ -1,10 +1,16 @@
-# My Open Publishing Space
+# **Natur am Wasserfall**
 
 ## Create, Share and Collaborate
 
-[Docsify](https://docsify.js.org/#/) can generate article, portfolio and documentation websites on the fly. Unlike Docusaurus, Hugo and many other Static Site Generators (SSG), it does not generate static html files. Instead, it smartly loads and parses your Markdown content files and displays them as a website. There is a change by 
+**sonnige Terrasse, Gartenplatz - entspannte Zeit**
 
-Daniel.![lice](.attachments.5692/lice.gif)
+**[4 Meter hohes Wohnzimmer](link:AE52EFBE-9898-43BF-A340-86EB87EC05C7)**
+
+**Familie Musik Office ◊ ohne Strasse ohne Lärm**
+
+**174m2 4.5 Zimmer zwei Geschosse [Minergie](link:3C2EB4FB-7B06-4FFC-B2C7-EB43A4019B33)**
+
+ There is a change by Daniel.![lice](.attachments.5692/lice.gif)
 
 ## Website Pages
 - [Introduction](introduction.md)
