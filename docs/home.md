@@ -4,17 +4,15 @@
 
 sonnige Terrasse, Gartenplatz - entspannte Zeit
 
-[4 Meter hohes Wohnzimmer](link:AE52EFBE-9898-43BF-A340-86EB87EC05C7)
+4 Meter hohes Wohnzimmer
 
 Familie Musik Office ◊ ohne Strasse ohne Lärm
 
-174m2 4.5 Zimmer zwei Geschosse [Minergie](link:3C2EB4FB-7B06-4FFC-B2C7-EB43A4019B33)
+174m2 4.5 Zimmer zwei Geschosse Minergie
 
 ![lice](.attachments.5692/lice.gif)
 
- walkthrough https://my.matterport.com/show/?m=CShoARNzPcW
-
-![matterport] (https://my.matterport.com/show/?m=CShoARNzPcW)
+![walkthrough](https://my.matterport.com/show/?m=CShoARNzPcW)
 
 ## Website Pages
 - [Introduction](introduction.md)
