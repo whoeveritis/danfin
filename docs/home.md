@@ -12,7 +12,9 @@ Familie Musik Office ◊ ohne Strasse ohne Lärm
 
 ![lice](.attachments.5692/lice.gif)
 
-![walkthrough](https://my.matterport.com/show/?m=CShoARNzPcW)
+
+
+## [**walkthrough**](https://my.matterport.com/show/?m=CShoARNzPcW)
 
 ## Website Pages
 - [Introduction](introduction.md)
