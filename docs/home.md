@@ -4,11 +4,11 @@
 
 sonnige Terrasse, Gartenplatz - entspannte Zeit
 
-4 Meter hohes Wohnzimmer
+Vier Meter hohes Wohnzimmer
 
-Familie Musik Office --- ohne Strasse ohne Lärm
+Familie Musik Office Kunst --- ohne Strasse kein Lärm
 
-174 Quadratmeter  4.5 Zimmer  zwei Geschosse  Minergie ^2^
+174 Quadratmeter  / 4.5 Zimmer  / zwei Geschosse  / Minergie
 
 ![lice](.attachments.5692/lice.gif)
 
