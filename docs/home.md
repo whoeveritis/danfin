@@ -1,6 +1,6 @@
 # **Natur am Wasserfall**
 
-## ein grosses Haus
+## ein 174m^2^ grosses Haus
 
 sonnige Terrasse, Gartenplatz - entspannte Zeit
 
