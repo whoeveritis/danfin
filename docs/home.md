@@ -8,7 +8,7 @@ sonnige Terrasse, Gartenplatz - entspannte Zeit
 
 Familie Musik Office --- ohne Strasse ohne Lärm
 
-174m^2^ 4.5 Zimmer zwei Geschosse Minergie
+174 Quadratmeter  4.5 Zimmer  zwei Geschosse  Minergie ^2^
 
 ![lice](.attachments.5692/lice.gif)
 
