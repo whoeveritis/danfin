@@ -1,6 +1,6 @@
 # **Natur am Wasserfall**
 
-## ein 174m^2^ grosses Haus
+## ein grosses Haus
 
 sonnige Terrasse, Gartenplatz - entspannte Zeit
 
@@ -8,7 +8,7 @@ sonnige Terrasse, Gartenplatz - entspannte Zeit
 
 Familie Musik Office --- ohne Strasse ohne Lärm
 
-174m2 4.5 Zimmer zwei Geschosse Minergie
+174m^2^ 4.5 Zimmer zwei Geschosse Minergie
 
 ![lice](.attachments.5692/lice.gif)
 
