@@ -10,9 +10,9 @@ Familie Musik Office ◊ ohne Strasse ohne Lärm
 
 174m2 4.5 Zimmer zwei Geschosse [Minergie](link:3C2EB4FB-7B06-4FFC-B2C7-EB43A4019B33)
 
- There is a change by Daniel.![lice](.attachments.5692/lice.gif)
+![lice](.attachments.5692/lice.gif)
 
- Matterport walkthrough https://my.matterport.com/show/?m=CShoARNzPcW
+ walkthrough https://my.matterport.com/show/?m=CShoARNzPcW
 
 ## Website Pages
 - [Introduction](introduction.md)
