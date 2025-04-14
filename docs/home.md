@@ -6,7 +6,7 @@ sonnige Terrasse, Gartenplatz - entspannte Zeit
 
 Vier Meter hohes Wohnzimmer
 
-Familie Musik Office Kunst --- ohne Strasse kein Lärm
+Familie Musik Office Kunst --- ohne Lärm ohne Strasse
 
 Wohnfläche 174 Quadratmeter  / 4.5 Zimmer  / zwei Geschosse  / Minergie / Komfortlüftung / Sommerkühlung / Cheminée
 
