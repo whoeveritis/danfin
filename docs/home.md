@@ -16,4 +16,4 @@
 
 *Miete* ... **Netto 3820.00  ...  NK 130.00  ...  PP 140.00**
 
-*made by* ... Daniel Finsler Architekt [daniel@finsler.ch](https://finsler.ch) ...  📞[Daniel](tel:0447711686)  📞[Bianca](tel:076 236 26 09)  📞[Celestina](tel:076 528 75 83)
+*made by* ... Daniel Finsler Architekt [daniel@finsler.ch](https://finsler.ch) ...  📞[Daniel](tel:0447711686)  📞[Bianca](tel:0762362609)  📞[Celestina](tel:0765287583)
