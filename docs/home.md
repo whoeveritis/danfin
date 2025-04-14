@@ -18,4 +18,4 @@ Wohnfläche 174 Quadratmeter  / 4.5 Zimmer  / zwei Geschosse  / Minergie / Komfo
 
 Miete **Netto 3820.00  -  NK 130.00  -  PP 140.00**
 
-Daniel Finsler Architekt [daniel@finsler.ch](www.finsler.ch)  044 77 11 686  /  076 236 26 09  /  076 528 75 83
+Daniel Finsler Architekt [daniel@finsler.ch](https://finsler.ch)  044 77 11 686  /  076 236 26 09  /  076 528 75 83
