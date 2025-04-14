@@ -4,7 +4,7 @@
 
 sonnige Terrasse, Gartenplatz - entspannte Zeit
 
-Vier Meter hohes Wohnzimmer
+Vier Meter hohes Wohnzimmer -- Eichenparkett
 
 Familie Musik Office Kunst --- ohne Lärm ohne Strasse
 
