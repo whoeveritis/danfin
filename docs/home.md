@@ -1,14 +1,14 @@
 # **Natur am Wasserfall**
 
-## schönes grosses Haus im Garten
+## ein schönes grosses Haus in einem schönen Garten
 
-sonnige Terrasse, Gartenplatz - entspannte Zeit
+*draussen* ... sonnige Terrasse, Gartenplatz ... entspannte Zeit
 
-Vier Meter hohes Wohnzimmer -- Eichenparkett
+*drinnen* ... Vier Meter hohes Wohnzimmer ... Eichenparkett
 
-Familie Musik Office Kunst --- ohne Lärm ohne Strasse
+*für was* ... Familie Musik Office Kunst ... ohne Lärm ohne Strasse
 
-Wohnfläche 174 Quadratmeter  / 4.5 Zimmer  / zwei Geschosse  / Minergie / Komfortlüftung / Sommerkühlung / Cheminée
+*wieviel* ... Wohnfläche 174 Quadratmeter  / 4.5 Zimmer  / zwei Geschosse  / Minergie / Komfortlüftung / Sommerkühlung / Cheminée
 
 ![lice](.attachments.5692/lice.gif)
 
