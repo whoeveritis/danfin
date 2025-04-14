@@ -1,6 +1,6 @@
 # **Natur am Wasserfall**
 
-## ein schönes grosses Haus in einem schönen Garten
+### ein schönes grosses Haus in einem schönen grossen Garten
 
 *draussen* ... sonnige Terrasse, Gartenplatz ... entspannte Zeit
 
