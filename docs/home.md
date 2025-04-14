@@ -8,7 +8,7 @@ Vier Meter hohes Wohnzimmer
 
 Familie Musik Office Kunst --- ohne Strasse kein Lärm
 
-174 Quadratmeter  / 4.5 Zimmer  / zwei Geschosse  / Minergie
+Wohnfläche 174 Quadratmeter  / 4.5 Zimmer  / zwei Geschosse  / Minergie / Komfortlüftung / Sommerkühlung
 
 ![lice](.attachments.5692/lice.gif)
 
