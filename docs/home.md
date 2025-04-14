@@ -18,4 +18,4 @@ Familie Musik Office Kunst --- ohne Strasse kein Lärm
 
 **Netto 3820.00  -  NK 130.00  -  PP 140.00**
 
-Daniel Finsler Architekt [daniel@finsler.ch](daniel@finsler.ch) 044 77 11 686 / 076 236 26 09 / 076 528 75 83
+Daniel Finsler Architekt [daniel@finsler.ch](www.finsler.ch)  044 77 11 686  /  076 236 26 09  /  076 528 75 83
