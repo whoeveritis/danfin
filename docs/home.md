@@ -6,7 +6,7 @@
 
 *innen* ... Wohnzimmer 4m hoch / Eichenparkett
 
-*was* ... Familie Musik Office Kunst Sport ... ohne Lärm ohne Strasse
+*was* ... Familie Musik Office Kunst Sport 🟢 ohne Lärm ohne Strasse
 
 *wie* ... Fläche 174 qm  / 4.5 Zr  / 2 Geschosse  / Minergie / Lüftung / Kühlung / Cheminée
 
