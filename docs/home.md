@@ -2,17 +2,13 @@
 
 #### ein schönes grosses Haus in einem schönen grossen Garten
 
-```html
-<p style="line-height: 80%;">
-```
-
 *aussen* ... sonnige Terrasse, Gartenplatz / entspannte Zeit
 
 *innen* ... Wohnzimmer 4m hoch / Eichenparkett
 
 *was* ... Familie Musik Office Kunst Sport ... ohne Lärm ohne Strasse
 
-*wie* ... Fläche 174 qm  / 4.5 Zr  / 2 Geschosse  / Minergie / Lüftung / Kühlung / Cheminée</p>
+*wie* ... Fläche 174 qm  / 4.5 Zr  / 2 Geschosse  / Minergie / Lüftung / Kühlung / Cheminée
 
 ![lice](.attachments.5692/lice.gif)
 
